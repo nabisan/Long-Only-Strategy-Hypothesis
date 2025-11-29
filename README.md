@@ -1,0 +1,1 @@
+# Long-Only-Strategy-Hypothesis
